@@ -10,7 +10,7 @@
 
 - ⚡ Fun fact: I love Volleyball!! More than any other sport out there. I am surprisingly good at it.
 
-- 📫 [Send me a Message about anything](mailto:cjl628@icloud.com)!
+- 📫 [Send me a Message](mailto:cjl628@icloud.com)!
 
 Languages and Tools:
 
